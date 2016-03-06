@@ -6,6 +6,6 @@ Merci de vous intéresser à ce jeu. Nous avons travaillé très fort dessus, ma
 
 Nous esperons que vous aurez beaucouo de plairir à jouer à ce jeu.
 
-Si vous avez le tremps, nous vous serions gréé de remplir la fiche d'évaluation appelé Evaluation.docx et de nous l'envoyer par courriel.
+Si vous avez le tremps, nous vous serions gréé de remplir la fiche d'évaluation appelé Evaluation.docx et de nous l'envoyer par courriel au si.boyer@hotmail.ca .
 
 -Simon Boyer et Antoine Brassard Lahey
